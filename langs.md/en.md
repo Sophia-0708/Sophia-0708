@@ -12,6 +12,6 @@ The times are like the great waves sweeping away sand and each wave pushes at th
 
 Let's go together for a shared future!
 
-&#x20;                                                                                                                            Armonia Team
+&#x20;                                                                                                                               Armonia Team
 
 &#x20;                                                                                                                               July 8, 2022
