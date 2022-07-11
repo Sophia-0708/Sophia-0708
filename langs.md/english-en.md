@@ -1,4 +1,4 @@
-# \[English]\(en/)
+# A Letter to Armonia Users
 
 Dear Armonia users,
 
