@@ -1,8 +1,5 @@
 # LANGS.md
 
-
-
-```shell
 # Languages
 
 * [中文](zh/)
